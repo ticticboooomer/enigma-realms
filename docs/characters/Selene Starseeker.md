@@ -1,0 +1,14 @@
+# Celene Star-seeker
+
+### Personal History
+Celene had been fascinated by the skies she lived under from the relatively young age of five. Since Celene first understood that the sky was more than a picturesque image above the land she walked upon, she had an insatiable desire to understand more about it. Her immense drive towards understanding the skies, and they behold, led her towards what she knows and loves about her research today.
+
+Her mother and father, being strict believers in following the social norms, failed to get to grips with their daughter's admiration. Such an attitude drove Celene away from her family and closer to finding the secrets of the skies. While living with her parents, Celene had no choice but to pursue her research secretly. Attending colleges and academic talks, reading scriptures, and spending hours gazing into the stars in the hope of one day knowing their secrets and origins. However, all of these seemingly positive activities were heavily frowned upon by her elders; her parents outright hated the idea of their daughter disrupting the flow of normality by delving into her celestial studies, which they deemed heresy.
+
+Once Celene had reached the age of an adult, which in these lands was known to be twenty-three years of age, she finally abandoned her bloodline relations and set off to find the truths she had always been looking for. She established a small colony up the tallest mountain in Bagrata, creating education for those who lived there. In return, they would build a tower. These now-educated mountain dwellers built The observatory she would use to conduct her studies. Once completed, it served as shelter and a place of work for those dwelling upon the mountain.
+
+Life, 700 ft in the air, albeit a dream for Celene, was a recluse and isolated experience. With only herself and some educated yet aphonic creatures to spend time with, Celene found that social aspects of living were incredibly degraded compared to living within the town she grew up in. Despite the mental strain Celene was under, she was too stubborn to leave and saw it was her fate and purpose to live isolated and continue her studies of all things celestial.
+
+# Education
+
+Celene began her education at a young age. Having an insatiable desire to understand the secrets the stars behold, she started reading books from her local library to see what she could learn. These books were labeled as factual and non-fiction. However, Celene did not believe these apparent truths. As she matured, Celene understood political structures and agendas were heavily against the ideas of celestial revelations. Thus, she decided the books she grew up reading were indoctrinated propaganda for young people to believe.
